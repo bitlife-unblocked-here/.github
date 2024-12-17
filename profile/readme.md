@@ -99,3 +99,7 @@ Whether you're sneaking in a quick session at school, unwinding during a break a
 You may now make odd decisions, live out your virtual fantasies, and follow your tale as it develops at any moment.
 
 Why wait, then? Explore BitLife Unblocked and unleash your creative side. After all, having no restrictions makes life more enjoyable!
+
+## Reference
+
+(n.d.). BitLife: Life Simulator. Fandom. https://bitlife-life-simulator.fandom.com/wiki/BitLife:_Life_Simulator
